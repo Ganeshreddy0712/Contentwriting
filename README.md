@@ -1,1 +1,5 @@
-# Contentwriting
+# Conor McGregor
+Conor Anthony McGregor (Irish: Conchúr Antóin Mac Gréagóir;[10] born 14 July 1988) is an Irish professional mixed martial artist. He is a former Ultimate Fighting Championship (UFC) featherweight and lightweight double-champion.[11] He is also the former Cage Warriors featherweight and lightweight champion. As of 19 July 2021, he is No. 9 in the UFC lightweight rankings.[12]
+
+In his debut professional boxing match, he was defeated by Floyd Mayweather Jr.[13] He is the biggest pay-per-view (PPV) draw in MMA history, having headlined five out of the six highest-selling UFC pay-per-view events.[14] His headline bout with Khabib Nurmagomedov at UFC 229 drew 2.4 million PPV buys, the most ever for an MMA event.[15] His boxing match with Mayweather drew 4.3 million PPV buys in North America, the second most in combat sports history.[16] McGregor was ranked as the world's highest paid athlete by Forbes in 2021, earning a reported $180 million.[17] He also featured in the list in 2018, when he was ranked fourth, with a reported income of $99 million.[18]
+![image](https://user-images.githubusercontent.com/91110203/145864663-33b4942e-71b8-45c3-811e-c68d15183b69.png)
